@@ -2,8 +2,9 @@
 
 - meu nome é Gustavo Bernardo
 
-- estou estudando programação na Alura
+- estou estudando programação na [Alura] (https://www.alura.com.br)
 
 - vou utilizar esse espaço para organizar e compartilhar meus projetos
 
-- ![](https://media1.tenor.com/m/N1Qb7LgVzX0AAAAd/aot-levi.gif)
+
+- ![](https://media1.tenor.com/m/kT9o3D5JZEgAAAAC/kimetsu-no-yaiba-demon-slayer.gif)
