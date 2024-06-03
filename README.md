@@ -6,6 +6,6 @@
 
 - vou utilizar esse espaço para organizar e compartilhar meus projetos
 
--email para contato: bernardogustavo@gmail.com
+-email para contato: bernardogustavo713@gmail.com
 
 - ![](https://media1.tenor.com/m/kT9o3D5JZEgAAAAC/kimetsu-no-yaiba-demon-slayer.gif)
