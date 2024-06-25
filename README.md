@@ -8,4 +8,4 @@
 
 - email para contato: bernardogustavo713@gmail.com
 
- ![](https://tenor.com/pt-BR/view/寫輪眼-gif-3480943121856555330)
+ ![](https://media1.tenor.com/m/ctELX7uD9p0AAAAC/zenitsu-kimetsu-no-yaiba.gif)
