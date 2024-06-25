@@ -8,4 +8,4 @@
 
 - email para contato: bernardogustavo713@gmail.com
 
- ![](https://media1.tenor.com/m/tlWIC9kJnncAAAAd/sanemi-obanai.gif)
+ ![](https://tenor.com/pt-BR/view/寫輪眼-gif-3480943121856555330)
