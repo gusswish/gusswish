@@ -8,4 +8,4 @@
 
 - email para contato: bernardogustavo713@gmail.com
 
- ![](https://media1.tenor.com/m/ctELX7uD9p0AAAAC/zenitsu-kimetsu-no-yaiba.gif)
+ ![](https://tenor.com/pt-BR/view/naruto-shippuden-shisui-susanoo-anime-gif-17434807)
