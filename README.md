@@ -8,4 +8,4 @@
 
 - email para contato: bernardogustavo713@gmail.com
 
- ![](https://tenor.com/pt-BR/view/naruto-shippuden-shisui-susanoo-anime-gif-17434807)
+ ![](https://media1.tenor.com/m/q2XEkQUDkbkAAAAC/naruto-shippuden-shisui.gif)
