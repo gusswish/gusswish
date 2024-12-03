@@ -8,4 +8,5 @@
 
 - email para contato: bernardogustavo713@gmail.com
 
- ![](https://media1.tenor.com/m/D6vff8zdCfoAAAAC/madara-shisui.gif)
+ ![](<img src="https://media1.tenor.com/m/spL0p8p_rvEAAAAd/gaara.gif" alt="a close up of a person &#39;s face behind a fence made of sand"/>![Uploading image.png…]()
+)
