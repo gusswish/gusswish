@@ -8,7 +8,7 @@
 
 - email para contato: bernardogustavo713@gmail.com
 
- ![](https://media.tenor.com/Qx4yvs-uuGoAAAAM/rock-lee-gaara.gif
+ ![](![image](https://github.com/user-attachments/assets/aa49e54f-364c-4adf-be19-d0202e284562)
 )
-(<img src="https://media1.tenor.com/m/ysObr5GObMYAAAAd/gaara.gif" alt="a cartoon character is standing in the middle of a pile of dirt"/>
+
 
