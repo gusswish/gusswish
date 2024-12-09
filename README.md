@@ -8,7 +8,6 @@
 
 - email para contato: bernardogustavo713@gmail.com
 
- ![](https://tenor.com/pt-BR/view/jujutsu-kaisen-miwa-ramen-gif-20307773)
-)
+ ![](https://media1.tenor.com/m/b6_6WmwS8QcAAAAd/jujutsu-kaisen.gif)
 
 
