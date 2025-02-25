@@ -8,6 +8,6 @@
 
 - email para contato: bernardogustavo713@gmail.com
 
- ![](https://media1.tenor.com/m/b6_6WmwS8QcAAAAd/jujutsu-kaisen.gif)
+ ![](https://tenor.com/pt-BR/view/rigby-gif-20421484)
 
 
