@@ -8,6 +8,6 @@
 
 - email para contato: bernardogustavo713@gmail.com
 
- ![](https://tenor.com/pt-BR/view/rigby-gif-20421484)
+ ![](https://media1.tenor.com/m/YIdnznu66swAAAAC/rigby.gif)
 
 
