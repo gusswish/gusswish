@@ -8,8 +8,7 @@ Bem-vindo ao meu perfil! Eu sou um entusiasta da programação.
 - **Python**
 
 ## 💬 Contato
-- [LinkedIn](https://www.linkedin.com/in/gustavo) (Adicione o link do seu LinkedIn)
-- [Twitter](https://twitter.com/gustavo) (Adicione o link do seu Twitter)
+- bernardogustavo713@gmail.com
 
 ---
 
