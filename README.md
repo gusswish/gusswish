@@ -1,4 +1,4 @@
-# Olá, Eu sou o Gustavo 
+# Olá, Eu sou o Gustavo 🖥️
 
 Bem-vindo ao meu perfil! Eu sou um entusiasta da programação.
 
