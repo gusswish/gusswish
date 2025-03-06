@@ -14,7 +14,8 @@ Bem-vindo ao meu perfil! Eu sou um entusiasta da programação.
 ---
 
 Faça ou não faça, Tentativa não há. -Yoda
-![https://media1.tenor.com/m/eO-C5L1ZkOoAAAAC/yoda-star-wars.gif].
+![Texto alternativo](https://media1.tenor.com/m/eO-C5L1ZkOoAAAAC/yoda-star-wars.gif)
+
 
 
 
